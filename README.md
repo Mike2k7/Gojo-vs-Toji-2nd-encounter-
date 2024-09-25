@@ -9,7 +9,7 @@
 >He's high... Toji, The Sorcerer Killer murmured
 >
 >You're from the Zen'in clan right? Gojo spoke
->You may know about the Limitless and the Six Eyes of the Gojo Clan
+>You may know about the Limitless and the Six Eyes of the Gojo Clan.
 >However, only a few know about this technique.
 >
 >_Take the amplified and the reversal, then smash together those two expressions of infinity to create and push out imaginary mass._
