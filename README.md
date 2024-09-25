@@ -14,6 +14,7 @@
 >
 >_Take the amplified and the reversal, then smash together those two expressions of infinity to create and push out imaginary mass._
 >
->**Imaginary Technique: Purple**
+>![**Imaginary Technique: Purple**](
+)
 >
->As Gojo's yet strongest technique, Purple, erased throught everything on its path, including a ,massive part of Toji's torso.
+>As Gojo's yet strongest technique, Purple, erased throught everything on its path, including a massive part of Toji's torso.
